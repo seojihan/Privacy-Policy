@@ -74,7 +74,7 @@ If this policy changes, the updated version will be published at this page with 
 
 ## 8. Contact
 
-If you have questions about this privacy policy, please contact: [your@email.com]
+If you have questions about this privacy policy, please contact: [seojihan77@gmail.com]
 
 ---
 
